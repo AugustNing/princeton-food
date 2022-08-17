@@ -80,13 +80,13 @@ Ivy Inn - like 2 of the only legit bars near campus. ONLY TAKES CASH! Has really
 
 Alchemist & Barrister - another popular restaurant/bar where people “go out” for drinks. This is a de facto bar since there are no bars in princeton. 
 
-Winberies - pretty good american eats with good atmosphere. When we have faculty candidates we sometimes will take them here. I think they have a bar here?
+Winberies - pretty good american eats with good atmosphere. When we have faculty candidates we sometimes will take them here for lunch. I think they have a bar here?
 
 La Mezzaluna - italian food on Witherspoon. They have a nice area for outdoor dining. Food is pretty tasty.
 
 Ramen and Boba - ok this is sort of a complaint more than a suggestion, but there are like four boba cafes and four ramen restaurants all within 5 mins walking distance, what the hell.
 
-Boba: Kung Fu tea is the standard chain, Ficus (has a grill and pretty popular for lunch) is nice and boujee, Junbi is more matcha but also has boba, and I think a new one will open up soon near kung fu tea. I like Junbi best
+Boba: Kung Fu tea a large standard chain, Ficus (has a grill and pretty popular for lunch) is nice and boujee, Junbi (smaller chain) is more matcha but also has boba, and a new MTea will open (20 feet away from Kung Fu Tea lol). I like Junbi best
 
 Ramen/noodles - Purinsu Ramen, Lan Ramen (this place is actually chinese beef noodles, not japanese ramen lol), Ajiten, Ani Ramen, Ramen Stop, Noodle House (this is the same location as kung fu tea, they have Pho too). I personally like Lan Ramen.
 
