@@ -138,3 +138,47 @@ Dun Huang (Edison) - next to Tasty Moment, specializing in Lanzhou/Northwestern 
 Meng Gao Yang BBQ (Edison) - really fun place for skewers that you cook yourself. You can also call ahead and they can grill a whole lamb leg for you (this is pricey but cool)
 
 Wonder Seafood Restaurant :speaking_head: (Edison) - I asked my friend if they had recommendations for push cart dim sum and they said this place has it. I think they should still have push carts? 
+
+---
+
+## NYC Food ???? 
+
+It’s a princeton rite of passage to go to nyc for a day trip. Unless you have a bunch of friends in nyc, once you’ve seen all the large landmarks nyc isnt that fun. Well if you’re there might as well have some good food. Most of these foods are Asian btw (Vaguely sorted by distance from Penn Station)
+
+KTown is a great for Korean food (duh) and is really close to Penn Station. Some of the places I’ve been to are highlighted below
+
+Grace Street (KTown) - classic spot for fancy desserts. Would recommend their cheesecake, shaved ice, and boba toast.
+ 
+Pocha (KTown, various locations) - Pocha is a Korean style pub/bar/restaurant with various locations around KTown. Good for decently priced beer and Soju and they also have good Korean food. Lines might be long on a weekend so plan accordingly.
+
+Gopchang Story (KTown) - sort of got instagram/tiktok famous since they specialized in intestine KBBQ. Worth trying it out if you think you’ll like it since it’s decently unique. 
+
+Izakaya MEW NYC (Midtown) - well priced Japanese food, esp their lunch menu
+
+Artichoke Basille's Pizza (chain with many locations in manhattan, closest one to Penn Station is near Time Square (37th and Broadway)) :speaking_head: - pizza chain that my friends quite like, ~$7 a slice. The slices are pretty rich and heavy, esp their namesake aritchoke pizza.
+
+$1 Pizza (most places in NYC, esp on the south side) - There are many places with $1 pizza and although it’s not worth your time to go out of your way for it, I want to mention it since I think it’s really cool. Popular to quick eats and late nights but some are open during the day.
+
+Other Half Brewing Company (there’s a taproom in Midtown at Rockefeller Center, but their main locations which have outdoor seating/better vibes are in Domino Park and Brooklyn) - According to my beer drinking friends, this is one of their favorite breweries in NYC. Brews lean towards IPAs and higher ABV.
+
+Olio e Piu (Greenwich Village) - Italian food (good for pasta and pizzas) with a really nice aesthetic, esp their outdoor dining area (if it’s still up, was up in 2021)
+
+Sotto 13 (Greenwich Village) - they have this “social brunch” on the weekends that’s really good for a group (make a reservation). It’s $40 per person (before tax and tip) and you get to choose starters, mains, sides, and cocktails that the group shares. 
+
+Blind Tiger (West Village) :speaking_head: - if you’re into drinking beers, this is a great place for a variety of microbreweries on tap.
+
+Most of Chinatown (Manhattan) has great cheap eats! Below are a few places friends have recommended to me. **bringing cash**. Flushing has even more and better Chinese food but it's sort of far.
+
+Chai Spot (Chinatown) - cool cafe with overpriced teas, but they have a very cool drinking area with lots of cushions where you can sit or lie down. Good place to chill out for a bit if you’re tired or want to do work (fast wifi)
+
+Shu Jiao Fu Zhou (Chinatown) :speaking_head: - great no-nonsense eatery for hand made dumplings and noodle soups 
+
+Wah Fung Fast Food (Chinatown) :speaking_head: - delicious and cheap roast pork/chicken, veggies, and rice, i think for $8. Expect a short but well worth wait 
+
+Shuka (SoHo??) - brunch spot for mediterranean food, well priced (~$30 with tax and tip included), decently veg friendly, sorta vegan friendly??
+
+Ample Hills Creamery (chain with many locations in Brooklyn, but have shops in Chelsea and Lower East Side) - If you havent gotten enough ice cream at Princeton, this is a solid place for scoops.
+
+Casa Enrique (Long Island City) - Michelin star Mexian restaurant on the relatively cheap side (like $40-50 per person tax and tip included). However you have to make a reservation early in advance or go on a weekday. 
+
+Meadowsweet (Williamsburg/Brooklyn) - Michelin star new american restaurant. Less than $30 brunch w tax and tip included, and $50 dinner with tax and tip included if you dont get drinks. Their mains are ok - if you’re going with friends I would recommend sharing a bunch of appitizers (their appitizers are great). 
