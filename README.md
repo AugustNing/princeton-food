@@ -88,15 +88,17 @@ Pizza - **Pizza Den**, **Jules Thin Crust**, **Proof** are all on nassau/withers
 
 Ramen and Boba - ok this is sort of a complaint more than a suggestion, but there are like four boba cafes and four ramen restaurants all within 5 mins walking distance, what the hell.
 
-Boba: **Kung Fu Tea** a large standard chain, **Ficus** (has a food menu and pretty popular for lunch) is nice and boujee, **Junbi** (smaller chain) is more matcha but also has boba, and a new **MTea** will open (20 feet away from Kung Fu Tea lol). I like Junbi best
+Boba: **Kung Fu Tea** on Nassau St is a large standard chain, **Ficus** near Equad (has a food menu and pretty popular for lunch) is nice and boujee, **Junbi** on Witherspoon St (smaller chain) is more matcha but also has boba, an **MTea** on Nassau St (20 feet away from Kung Fu Tea lol), and **Fresh O Tea** near equad. I like Junbi best
 
-Ramen/noodles - **Purinsu Ramen**, **Lan Ramen** (this place is actually chinese beef noodles, not japanese ramen lol), **Ajiten**, **Ani Ramen**, **Ramen Stop**, **Noodle House** (this is the same location as kung fu tea, they have Pho too). I personally like Lan Ramen.
+Ramen/noodles - **Purinsu Ramen**, **Lan Ramen** (this place is actually chinese beef noodles and other Chinese food, not japanese ramen), **Ajiten**, **Ani Ramen**, **Noodle House** (this is the same location as kung fu tea, they have Pho too). I personally like Lan Ramen.
 
 **Small World Coffee/Sakrid/Rojo** - 3 coffee places near campus. I personally like small world best since they are closest to equad.
 
 **Princeton Coffehouse** - student run cafe in the bottom of campus club (eating club on the corner of Prospect and Washington. It’s open to everyone!). I think they have the cheapest coffee
 
 **Murray-Dodge Cafe** - on campus in the basement of Murray-Dodge and they have free coffee, tea, and cookies. It's a popular spot for undergrads to study. 
+
+**Mochinut** - opened in late 2022, this has mochi donuts, rice hot dogs, and boba.
 
 **Bent Spoon** - great ice cream with interesting rotating flavors - may have a long line during the summer. There’s a story to this, but Bent Spoon is the reason i committed to princeton lol
 
@@ -118,6 +120,8 @@ Mostly chinese food lol. List is sort of organized from closest to farthest dist
 **Nomad Pizza** - even more pizza lol, it’s in Princeton shopping center but i think they do their pizza pretty well. Good for large parties.
 
 **Cross Culture** - Indian food in Princeton shopping center. I actually never have been here but they often cater campus events. The food i had on campus was pretty good!
+
+**A2B Indian Veg Restaurant - Princeton** - Some of the best south Indian food that's close to campus. There is also an Edison location. 
 
 **Masa Sushi (Nassau Park)** - Close to campus and has all you can eat sushi. You can individually order sashimi (doesn’t come with the rice) which is nice for AYCE since you can fill up directly on raw fish without the rice
 
@@ -142,6 +146,8 @@ Mostly chinese food lol. List is sort of organized from closest to farthest dist
 **Meng Gao Yang BBQ (Edison)** - really fun place for skewers that you cook yourself. You can also call ahead and they can grill a whole lamb leg for you (this is pricey but cool)
 
 **Wonder Seafood Restaurant (Edison)** :speaking_head: - I asked my friend if they had recommendations for push cart dim sum and they said this place has it. I think they should still have push carts? 
+
+**Moghul Express (Edison / Oak Tree Road)** - Delicious Indian food for good prices. This is the cheaper version of Moghul Restaurant which is more fine dining.
 
 ---
 
