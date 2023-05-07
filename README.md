@@ -25,9 +25,9 @@ If you want (east) asian groceries and can drive, there is **Woo Ri Mart** (Kore
 
 NJ alc thing: most restaurants are bring your own beer/beverages (BYOB) since most dont have the expensive liquor license. 
 
-There’s some law in NJ where each company can only have two liquor licenses in the whole state. You can get most beers and liquor at the stores around campus, abet for a market up. Near equad is **Nassau Liquors Grape Grain** and **Varsity Liquor**. On Witherspoon is **Public Wine**. 
+There’s some law in NJ where each company can only have two liquor licenses in the whole state. You can get most beers and liquor at the stores around campus, abet for a market up. Near equad is **Nassau Liquors Grape Grain** and **Varsity Liquor**. On Witherspoon is **Public Wine**. On Nassau is **Claridge Wine & Liquor**.
 
-Cheaper drinks can be found at the Wegmans and Trader Joes on Route 1 (they conveniently these licenses). If you have a car, the Costco in Edison has liquor. There isn’t liquor or beer at CVS, Wawa, 7Eleven, etc. 
+Cheaper drinks can be found at the Wegmans and Trader Joes on Route 1 (they conveniently have these licenses). If you have a car, the Costco in Edison has liquor. There isn’t liquor or beer at CVS, Wawa, 7Eleven, etc. 
 
 Subscribe to the **freefood email list**! During the school year you can practically live off this email list, no joke. Undergrads get a ton of free food.
 [https://lists.princeton.edu/cgi-bin/wa?SUBED1=FREEFOOD&A=1](https://lists.princeton.edu/cgi-bin/wa?SUBED1=FREEFOOD&A=1)
@@ -46,17 +46,17 @@ They give you a lot of food for the price. Also open late night but watch out fo
 
 **Tacoria** - popular joint for chipotle style food (Mexican? Tex mex? Not too sure). I think of it like chipotle but better and more pricey. If you’re a chipotle fan there’s one next to trader joes on Route 1, 5 min drive from campus.
 
-**Taste of Mexico** :speaking_head: - I’ve never had taste of mexico before, but some argue that it’s better than Tacoria. I’ve been told that Tacoria is more americanized and taste of mexico is more true to mexican roots.
+**Taste of Mexico** - More authentic Mexican food compared to Tacoria. Small place that is on the opposite side of Nassau St, so you need to go through the alley near KBG.
 
 **Local Greek** - good greek food. Sorta pricey but good for celebrations/birthdays. If you’re really into eating meat I would recommending getting a couple friends and getting the mixed grilled platter - it’s an experience.
 
-**Small Bites by Local Greek** - right on nassau and is a popular lunch spot.
+**Small Bites by Local Greek / Greek Bites** - right on nassau and is a popular lunch spot.
 
 **Olives** - very popular lunch spot, deli vibes. Has a fair share of greek food, sandwiches, etc. decently vegetarian friendly
 
 **Planted Plate** :speaking_head: - a vegan restaurant on witherspoon. I’ve never had this before but my friend Sharon recommended it to me and I think it would make her (and vegans) happy that it’s included here. If someone goes there please let me know what it is like.
 
-**Efes** - Greek food but close to equad. I like their lunch stuff!
+**Efes** - Greek food but close to equad. I like their lunch stuff and good for catering!
 
 **Nassau St Seafood Co.** :speaking_head: - good seafood lunch spot close to equad. I’ve never been here but I know my lab mates like it.
 
@@ -85,6 +85,8 @@ Pizza - **Pizza Den**, **Jules Thin Crust**, **Proof** are all on nassau/withers
 **Winberies** - pretty good american eats with good atmosphere. When we have faculty candidates we sometimes will take them here for lunch. I think they have a bar here?
 
 **La Mezzaluna** - Italian food on Witherspoon. They have a nice area for outdoor dining. Food is pretty tasty.
+
+**Mistral** - American fine dining with a focus on seafood. The food is actually really good abet sort of pricey (esp cocktails). I recommend going tapas style with appetizers since the entrees are overpriced.
 
 Ramen and Boba - ok this is sort of a complaint more than a suggestion, but there are like four boba cafes and four ramen restaurants all within 5 mins walking distance, what the hell.
 
@@ -137,7 +139,7 @@ Mostly chinese food lol. List is sort of organized from closest to farthest dist
 
 **Hot Wok Cafe** :speaking_head: - I asked my Chinese lab mate from south China what his favorite authentic chinese restaurant within 10 min driving distance was and this was his recommendation. 
 
-**Buen Provecho (Hamilton)** - ~20 min drive for puerto rican food. I would recommend making a reservation. They have this special (i dont think its’ on the menu so you have to ask for it) but it’s a whole red snapper stuff with steak. It’s amazing. Go have it and go into a food coma. 
+**Buen Provecho (Hamilton)** - ~~20 min drive for puerto rican food. I would recommend making a reservation. They have this special (i dont think its’ on the menu so you have to ask for it) but it’s a whole red snapper stuff with steak. It’s amazing. Go have it and go into a food coma.~~ As of 2023, Buen Provecho has closed :( If someone knows where to find great Puerto Rican food please let me know
 
 **Tasty Moment (Edison)** - really good authentic chinese food. I think it’s sorta expensive but the food is really good and it’s a nice atmosphere. It’s a really popular spot (idk if they take reservations), so when you’re waiting for you table you can go to hmart, get boba, or tasty bread from paris baguette
 
