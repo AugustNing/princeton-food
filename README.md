@@ -1,10 +1,8 @@
 # August's Princeton Food List
 
-**If you have suggestions for Philly please feel free to make an issue so I can add it in!** I sadly haven't gone to Philly yet :cry:
-
 A list of restaurants that I like near/around Princeton NJ (and NYC??), written from a stingy grad student with no car perspective. There are some comments. The first paragraph is an overview of grocery stores, alcohol, and free food/stuff at Princeton.
 
-I make no guarantees if any of these are that good since im no foodie lol, but I think they are pretty good if they make the list. Some of them are also suggested by trusted friends who eat out more than I do. Suggestions from friends are denoted with :speaking_head:
+At this point, I've been to most restaurants on Nassau/Witherspoon/Palmer Sq, so this is really more of a food diary than suggestions. However I generally like most of the food in the area. Some of them are also suggested by trusted friends who eat out more than I do. Suggestions from friends are denoted with :speaking_head:
 
 I want to note that COS Lecturer Kevin Wayne has a much more extensive list than I do, and I think he writes more coherently than I do lol: [https://www.cs.princeton.edu/~wayne/princeton.restaurants/](https://www.cs.princeton.edu/~wayne/princeton.restaurants/)
 
@@ -15,24 +13,26 @@ The list is in no way comprehensive, so use this as a good starting point and le
 
 ## Groceries, Alcohol, and Free Food/Stuff
 
-The biggest grocery stores around here that you can get to on the weekend shopper are **Whole Foods, Wegmans, and Trader Joes.** Nassau Park (where Wegmans is) also has a **target, home depot, michaels**. However taking the bus is really annoying so if you dont have a car, i recommend making friend with a car to drive you instead lol.
+On Nassau st is **Maruichi** which is a small Japanese grocery store with a great selection of snacks and premade meals. They also have a small selection of fresh meat, seafood, veggies, Japanese seasoning. Their produce a tad pricey (Nassau st/college campus tax) but it's still reasonable and incredibly convenient. They also have some Japanese specialty cosmetics in the back.
+
+The biggest grocery stores around here that you can get to on the weekend shopper are **Whole Foods, Wegmans, and Trader Joes.** Nassau Park (where Wegmans is) also has a **target, home depot, michaels**. However taking the bus is really annoying so if you dont have a car, I recommend making friend with a car to drive you instead.
 
 Within driving distance is also a **Costco** (:heart:). If you have a costco membership and a car, please take me.
 
-If you want (east) asian groceries and can drive, there is **Woo Ri Mart** (Korean) in Princeton Junction near the dinky station and **Asian Food Mart** (Chinese) in Plainsboro (10 min drive). If you want to go a larger store, there is an **H Mart** (Korean) and **99 Ranch Market** (Chinese) in Edison (~30 min drive). I personally think asian grocery stores are cheaper for produce compared to wegmans. I also think the masking rate is higher in asian groceries compared to wegmans.
+If you want (east) asian groceries and can drive, there is **Woo Ri Mart** (Korean) in Princeton Junction near the dinky station and **Asian Food Mart** (Chinese) in Plainsboro (10 min drive). If you want to go a larger store, there is an **H Mart** (Korean) and **99 Ranch Market** (Chinese) in Edison (~30-40 min drive). I personally think asian grocery stores are cheaper for produce compared to wegmans.
 
 **Patel Brothers** in East Windsor i think is the closest indian grocery store.
 
 NJ alc thing: most restaurants are bring your own beer/beverages (BYOB) since most dont have the expensive liquor license. 
 
-There’s some law in NJ where each company can only have two liquor licenses in the whole state. You can get most beers and liquor at the stores around campus, abet for a market up. Near equad is **Nassau Liquors Grape Grain** and **Varsity Liquor**. On Witherspoon is **Public Wine**. On Nassau is **Claridge Wine & Liquor**.
+There’s some law in NJ where each company can only have two liquor licenses in the whole state. You can get most beers and liquor at the stores around campus, abet for a market up. Near equad is **Nassau Liquors Grape Grain** and **Varsity Liquor**. On Witherspoon is **Public Wine**. On Nassau is **Claridge Wine & Liquor**. On Hulfish (Palmer Square) is **Princeton Corkscrew Wine Shop**. My personal favorite is Varsity Liquor, the owner Arun and I are pals.
 
-Cheaper drinks can be found at the Wegmans and Trader Joes on Route 1 (they conveniently have these licenses). If you have a car, the Costco in Edison has liquor. There isn’t liquor or beer at CVS, Wawa, 7Eleven, etc. 
+Cheaper drinks can be found at the Wegmans and Trader Joes on Route 1 (they conveniently have these licenses). If you have a car, the Costco in Edison has liquor. There **is not** liquor or beer at CVS, Wawa, 7Eleven, etc. 
 
 Subscribe to the **freefood email list**! During the school year you can practically live off this email list, no joke. Undergrads get a ton of free food.
 [https://lists.princeton.edu/cgi-bin/wa?SUBED1=FREEFOOD&A=1](https://lists.princeton.edu/cgi-bin/wa?SUBED1=FREEFOOD&A=1)
 
-During the year, there is usually a weekly **GSG Happy Hour** (previously have been on Wednesdays) that has dinner and beers! They are announced on weekly GSG emails. Dinner is usually pizza. Food goes quickly, so go in the first 15mins if you want to get food.
+~~During the year, there is usually a weekly **GSG Happy Hour** (previously have been on Wednesdays) that has dinner and beers! They are announced on weekly GSG emails. Dinner is usually pizza. Food goes quickly, so go in the first 15mins if you want to get food.~~ As of Fall 2024, I have no idea if these are still being run
 
 On Friday nights there is usually **Social Hour in grad college courtyard** or old grad college (OGC) common room. Open bar with snacks! Very popular at the beginning of the school year, not as popular a few weeks in. 
 
@@ -46,11 +46,9 @@ They give you a lot of food for the price. Also open late night but watch out fo
 
 **Tacoria** - popular joint for chipotle style food (Mexican? Tex mex? Not too sure). I think of it like chipotle but better and more pricey. If you’re a chipotle fan there’s one next to trader joes on Route 1, 5 min drive from campus.
 
-**Taste of Mexico** - More authentic Mexican food compared to Tacoria. Small place that is on the opposite side of Nassau St, so you need to go through the alley near KBG.
+**Taste of Mexico** - More authentic Mexican food compared to Tacoria. Small place that is on the opposite side of Nassau St, so you need to go through the alley near KBG. The food is OK but it does scratch any mexican cravings you might have.
 
-**Local Greek** - good greek food. Sorta pricey but good for celebrations/birthdays. If you’re really into eating meat I would recommending getting a couple friends and getting the mixed grilled platter - it’s an experience.
-
-**Small Bites by Local Greek / Greek Bites** - right on nassau and is a popular lunch spot.
+**Local Greek** - [Note this is on Leigh Ave which is a 15 min walk/5 min drive] good greek food. Sorta pricey but good for celebrations/birthdays. If you’re really into eating meat I would recommending getting a couple friends and getting the mixed grilled platter - it’s an experience.
 
 **Olives** - very popular lunch spot, deli vibes. Has a fair share of greek food, sandwiches, etc. decently vegetarian friendly
 
@@ -62,13 +60,13 @@ They give you a lot of food for the price. Also open late night but watch out fo
 
 **Thai Village/Amazing Thai** - two thai restaurants in 2 mins walking distance of each other. Thai village is cheaper, Amazing Thai is sit down and fancier. Both have pretty good lunch specials.
 
-**Tiger Noodles** - American Chinese food close to equad and is a popular lunch spot
+**Tiger Noodles** - American Chinese food close to equad and is a popular lunch spot. Lunch special is good value.
 
 **Tomo Sushi** - takeout only sushi/japanese joint. I really like their lunch specials.
 
 **Ajiten** - fancy place for fancy japanese food.
 
-**SC House** - legit sichuan chinese food! It’s really good chinese food. Pricier than going to Edison for chinese food but it’s probably worth the time savings.
+**SC House** - legit sichuan chinese food! It’s really good chinese food. Pricier than going to Edison for chinese food but it may be worth the time savings.
 
 Pizza - **Pizza Den**, **Jules Thin Crust**, **Proof** are all on nassau/witherspoon. Out of these three I like Jules the most. GSG happy hour often orders pizza den or Frist pizza.
 
@@ -84,25 +82,31 @@ Pizza - **Pizza Den**, **Jules Thin Crust**, **Proof** are all on nassau/withers
 
 **Winberies** - pretty good american eats with good atmosphere. When we have faculty candidates we sometimes will take them here for lunch. I think they have a bar here?
 
-**La Mezzaluna** - Italian food on Witherspoon. They have a nice area for outdoor dining. Food is pretty tasty.
+**La Mezzaluna** - Italian food on Witherspoon. They have a nice area for outdoor dining. Good balance between being fancy and price.
+
+**Teresa Caffe** - popular joint for casual italian food. Pizzas are good
 
 **Mistral** - American fine dining with a focus on seafood. The food is actually really good abet sort of pricey (esp cocktails). I recommend going tapas style with appetizers since the entrees are overpriced.
 
-Ramen and Boba - ok this is sort of a complaint more than a suggestion, but there are like four boba cafes and four ramen restaurants all within 5 mins walking distance, what the hell.
+**Agricola** - American fine dining with good vegetarian options.
 
-Boba: **Kung Fu Tea** on Nassau St is a large standard chain, **Ficus** near Equad (has a food menu and pretty popular for lunch) is nice and boujee, **Junbi** on Witherspoon St (smaller chain) is more matcha but also has boba, an **MTea** on Nassau St (20 feet away from Kung Fu Tea lol), and **Fresh O Tea** near equad. I like Junbi best
+**The Dinky Bar** - fine dining, I would recommend their cocktails over their food.
+
+Ramen and Boba - More of a complaint than a suggestion, but there are like four boba cafes and four ramen restaurants all within 5 mins walking distance, what the hell.
+
+Boba: **Kung Fu Tea** on Nassau St is a large standard chain, **Ficus** near Equad (has a food menu and pretty popular for lunch) is nice and boujee, **Junbi** on Witherspoon St (smaller chain) is more matcha but also has boba, an **MTea** on Nassau St (20 feet away from Kung Fu Tea lol), and **Fresh O Tea** near equad (they also have food). I like Junbi best
 
 Ramen/noodles - **Purinsu Ramen**, **Lan Ramen** (this place is actually chinese beef noodles and other Chinese food, not japanese ramen), **Ajiten**, **Ani Ramen**, **Noodle House** (this is the same location as kung fu tea, they have Pho too). I personally like Lan Ramen.
 
 **Small World Coffee/Sakrid/Rojo** - 3 coffee places near campus. I personally like small world best since they are closest to equad.
 
-**Princeton Coffehouse** - student run cafe in the bottom of campus club (eating club on the corner of Prospect and Washington. It’s open to everyone!). I think they have the cheapest coffee
+**Princeton Coffee Club** - student run cafe in the bottom of campus club (eating club on the corner of Prospect and Washington. It’s open to everyone!) and NCW/Yeh. I think they have the cheapest coffee
 
 **Murray-Dodge Cafe** - on campus in the basement of Murray-Dodge and they have free coffee, tea, and cookies. It's a popular spot for undergrads to study. 
 
-**Mochinut** - opened in late 2022, this has mochi donuts, rice hot dogs, and boba.
+**Chez Alice** - very cute french cafe with fancy deserts. Their cakes are tasty and good for birthdays/celebrations.
 
-**Bent Spoon** - great ice cream with interesting rotating flavors - may have a long line during the summer. There’s a story to this, but Bent Spoon is the reason i committed to princeton lol
+**Bent Spoon** - great ice cream with interesting rotating flavors - may have a long line during the summer. One of the reasons i committed to Princeton is Bent Spoon
 
 **Halo Pub** - also great ice cream! More traditional flavors and usually a shorter line that bent spoon. If there’s a long line at bent spoon you can walk 2 min to halo pub instead
 
@@ -117,9 +121,15 @@ Mostly chinese food lol. List is sort of organized from closest to farthest dist
 
 **Terakawa Ramen (Princeton Junction, near the dinky)** - I know i just complained about how there are too many ramen restaurants in Princeton, but this is hands down the best ramen in princeton. It’s a short drive away and it’s well worth the trip.
 
+**bb.q Chicken** - korean fried chicken restaurant. 
+
+**Mango Mango** - neat chain desert place that serves cakes, teas, boba/smoothie/sweet drinks.
+
+**Tous Les Jours** - chain cafe with deserts
+
 **Bagel Nook** :speaking_head: - Really close in the Princeton shopping center. They have interesting overload bagel flavors
 
-**Nomad Pizza** - even more pizza lol, it’s in Princeton shopping center but i think they do their pizza pretty well. Good for large parties.
+**Nomad Pizza** - even more pizza, it’s in Princeton shopping center but i think they do their pizza pretty well. Good for large parties.
 
 **Cross Culture** - Indian food in Princeton shopping center. I actually never have been here but they often cater campus events. The food i had on campus was pretty good!
 
@@ -127,7 +137,9 @@ Mostly chinese food lol. List is sort of organized from closest to farthest dist
 
 **Masa Sushi (Nassau Park)** - Close to campus and has all you can eat sushi. You can individually order sashimi (doesn’t come with the rice) which is nice for AYCE since you can fill up directly on raw fish without the rice
 
-**Sumi Ramen (Plainsboro)** - it’s pretty good ramen! But why would you go here when there’s like, 4 other ramen restaurants in near campus lol. It’s in the asian food mart’s shopping center
+**Sumi Ramen (Plainsboro)** - it’s pretty good ramen! But why would you go here when there’s like, 4 other ramen restaurants in near campus. It’s in the asian food mart’s shopping center
+
+**Pho Today (Plainsboro)** - standard pho restaurant
 
 **Lotus Garden (Plainsboro)** :speaking_head: - Same shopping center as asian food market and Sumi Ramen. A good mix of traditional Taiwanese food and chinese american classics. Recommended by lab mates.
 
@@ -155,9 +167,11 @@ Mostly chinese food lol. List is sort of organized from closest to farthest dist
 
 ## NYC Food ???? 
 
+Fall 2024 Update - Restaurant turnover is really high in NYC, so no guarantees if any of these are still operating.
+
 It’s a princeton rite of passage to go to nyc for a day trip. Unless you have a bunch of friends in nyc, once you’ve seen all the large landmarks nyc isnt that fun. Well if you’re there might as well have some good food. Most of these foods are Asian btw (Vaguely sorted by distance from Penn Station)
 
-KTown is a great for Korean food (duh) and is really close to Penn Station. Some of the places I’ve been to are highlighted below
+KTown is a great for Korean food and is really close to Penn Station. Some of the places I’ve been to are highlighted below
 
 **Grace Street (KTown)** - classic spot for fancy desserts. Would recommend their cheesecake, shaved ice, and boba toast.
  
@@ -170,6 +184,8 @@ KTown is a great for Korean food (duh) and is really close to Penn Station. Some
 **Artichoke Basille's Pizza (chain with many locations in manhattan, closest one to Penn Station is near Time Square (37th and Broadway))** :speaking_head: - pizza chain that my friends quite like, ~$7 a slice. The slices are pretty rich and heavy, esp their namesake aritchoke pizza.
 
 **$1 Pizza (most places in NYC, esp on the south side)** - There are many places with $1 pizza and although it’s not worth your time to go out of your way for it, I want to mention it since I think it’s really cool. Popular to quick eats and late nights but some are open during the day.
+
+**Liberty Bagels (midtown)** - good bagel sandwiches close to penn station. It's crazy how expensive bagels can get though
 
 **Other Half Brewing Company (there’s a taproom in Midtown at Rockefeller Center, but their main locations which have outdoor seating/better vibes are in Domino Park and Brooklyn)** - According to my beer drinking friends, this is one of their favorite breweries in NYC. Brews lean towards IPAs and higher ABV.
 
@@ -187,10 +203,20 @@ Most of Chinatown (Manhattan) has great cheap eats! Below are a few places frien
 
 **Wah Fung Fast Food (Chinatown)** :speaking_head: - delicious and cheap roast pork/chicken, veggies, and rice, i think for $8. Expect a short but well worth wait 
 
+**Bánh Mì Cô Út (Chinatown)** - one of my favorite banh mi places
+
+**Mei Lai Wah** - internet famous bakery known for their pineapple roast pork buns.
+
 **Shuka (SoHo??)** - brunch spot for mediterranean food, well priced (~$30 with tax and tip included), decently veg friendly, sorta vegan friendly??
 
 **Ample Hills Creamery (chain with many locations in Brooklyn, but have shops in Chelsea and Lower East Side)** - If you havent gotten enough ice cream at Princeton, this is a solid place for scoops.
 
 **Casa Enrique (Long Island City)** - Michelin star Mexian restaurant on the relatively cheap side (like $40-50 per person tax and tip included). However you have to make a reservation early in advance or go on a weekday. 
 
-**Meadowsweet (Williamsburg/Brooklyn)** - Michelin star new american restaurant. Less than $30 brunch w tax and tip included, and $50 dinner with tax and tip included if you dont get drinks. Their mains are ok - if you’re going with friends I would recommend sharing a bunch of appitizers (their appitizers are great). 
+**Dutch Kills (LIC)** - Famous cocktail bar known for their clear ice.
+
+**Meadowsweet (Williamsburg/Brooklyn)** - Michelin star new american restaurant. Less than $30 brunch w tax and tip included, and $50 dinner with tax and tip included if you dont get drinks. Their mains are ok - if you’re going with friends I would recommend sharing a bunch of appetizers (their appetizers are great). 
+
+**The Dead Rabbit (fidi)** :speaking_head: - apparently the best bar ever
+
+**Chez Ma Tante (Greenpoint)** - delicious fancy french food but really expensive
